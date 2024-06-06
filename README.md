@@ -18,7 +18,7 @@
 
 ## 活动地址
 
-[https://v.115.com/618](https://v.115.com/618?share_code=CUfGkq)
+[参加115网盘618活动，签到赢现金和VIP！https://v.115.com/618](https://v.115.com/618?share_code=CUfGkq)
 
 ## 活动二维码
 
